@@ -1,3 +1,3 @@
 #HELLO GUYS
 
-SUbscirbe me!
+SUbscirbe your friend!
